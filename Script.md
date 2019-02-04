@@ -11,6 +11,7 @@ George woke to the sound of traffic, the sky was gray.
 After his typical breakfast of toast and an egg, he left for school.
 Normally George would have walked down Bleaker streat, but today there was construction and he decided to take Flande behind the zoo.
 
+The zookeeper was mad as hell, looking at george like boiiiiiii what you son??
 Being on time was not one of George’s specialities today would prove to be no different.
 As he mooved slowly.
 As he walked behind the zoo he could see the trees and thick floiage growing above the heavy stone wall that ran behind the zoo; and hear the sounds of animals in the distance.
